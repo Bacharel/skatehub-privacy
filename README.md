@@ -43,7 +43,7 @@ O SkateHub não é destinado a menores de 13 anos. Não coletamos intencionalmen
 
 ## 7. Contato
 
-Dúvidas sobre privacidade: **skatehub.app@gmail.com**
+Dúvidas sobre privacidade: **contato@dataflowservico.com**
 
 ---
 
